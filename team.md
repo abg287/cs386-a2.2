@@ -1,5 +1,5 @@
 # Alonso Garcia
-I love snowboarding and reading.
+I love snowboarding and playing games.
 # Kristopher Thomas
 # Robert McClung
 # Carlos Martinez
